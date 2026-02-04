@@ -1,1 +1,1 @@
-https://www.mediafire.com/file/7q7qxtrw0rgn72f/_Documents_+File+Manager+&+Docs_v8.19.2-AppAssassin+Modified.ipa/file
+https://www.mediafire.com/file/gi6pgk5pzhsym9a/_Full+of+Stars_v3.10-AppAssassin+Modified.ipa/file
