@@ -1,2 +1,1 @@
-# uploads
-https://www.mediafire.com/file/0ri8duesi037k5r/com.readdle.ReaddleDocsIPad-8.19.2-eeveedecrypter.ipa/file
+https://www.mediafire.com/file/7q7qxtrw0rgn72f/_Documents_+File+Manager+&+Docs_v8.19.2-AppAssassin+Modified.ipa/file
